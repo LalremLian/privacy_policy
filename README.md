@@ -1,5 +1,5 @@
 ### PRIVACY NOTICE
-Last updated May 02, 2023
+Last updated March 02, 2024
 
 This privacy notice for Lalrem Lian B Tlung ("Company," "we," "us," or  "our"),	 	
 describes how and why we might collect, store, use, and/or share ("process") your information when you use our services ("Services"), such as when you:
